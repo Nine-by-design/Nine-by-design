@@ -21,15 +21,23 @@ With that, I will end with this:
   
 -:biohazard: That being said, I am aware that creating rules let alone implementing them is [futile](https://tvtropes.org/pmwiki/pmwiki.php/Main/RulesOfTheInternet). But please, for your own sanity and general mental health as well as my own :biohazard::badger: ,
  
-  1 Don't talk about The Murderous Mongoose.:speaking_head:
-  2 Do not talk about The Murderous Mongoose.
-  3 Save your judgment For the mirror
-  4 Take your negativity forcibly into your rectum and tell me how it tastes, Brenda.
-  5 Yes, I'm aware that rule (more of a guideline) four is inherently breaking itself.
-  6 I hate online fighting :video_game:
-  7 I love actually :boxing_glove: fighting :supervillain: .
-  8 I just checked my field of fux and don't have any left to give to you about any of this ☝️ I just wanted to make a list.
-  9 🖕
+  -1 Don't talk about The Murderous Mongoose.:speaking_head:
+ 
+  -2 Do not talk about The Murderous Mongoose.
+ 
+  -3 Save your judgment For the mirror
+  
+  -4 Take your negativity forcibly into your rectum and tell me how it tastes, Brenda.
+  
+  -5 Yes, I'm aware that rule (more of a guideline) four is inherently breaking itself.
+ 
+  -6 I hate online fighting :video_game:
+ 
+  -7 I love actually :boxing_glove: fighting :supervillain: .
+ 
+  -8 I just checked my field of fux and don't have any left to give to you about any of this ☝️ I just wanted to make a list.
+ 
+  -9 🖕
 
   :bangbang::warning::bangbang::underage::bangbang::goberserk::bangbang::trollface::bangbang:
 
