@@ -20,6 +20,7 @@ With that, I will end with this:
 - Any advice, knowledge or general friendly banter is welcomed and encouraged.
   
 -:biohazard: That being said, I am aware that creating rules let alone implementing them is [futile](https://tvtropes.org/pmwiki/pmwiki.php/Main/RulesOfTheInternet). But please, for your own sanity and general mental health as well as my own :biohazard::badger: ,
+ 
   1 Don't talk about The Murderous Mongoose.:speaking_head:
   2 Do not talk about The Murderous Mongoose.
   3 Save your judgment For the mirror
